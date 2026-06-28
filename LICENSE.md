@@ -1,4 +1,4 @@
-# 
+# Premium pancakeswap trading bot scripts for Mac OS | Profesional pancakeswap trading bot scripts for PC Windows. Featuring estrategia de reversión a la media and API de intercambio centralizado — optimized for maximum performance.
 
 
 
